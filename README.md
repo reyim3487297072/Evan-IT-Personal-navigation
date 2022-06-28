@@ -5,8 +5,7 @@
 
 #预览
 
-您可以访问:http://jfkj.xyz/
-
+您可以访问:http://reyim3487297072.github.io
 # 网站截图：
 
 
